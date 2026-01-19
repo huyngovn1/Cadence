@@ -1,4 +1,0 @@
-"# Cadence" 
-"# Cadence" 
-"# Cadence" 
-"# Cadence" 
